@@ -1,4 +1,4 @@
-## Welcome 🌱
+## Hi 🌱
 
 I'm Yelynn, a junior at Dartmouth College majoring in Computer Science modified with Digital Arts. 
 
